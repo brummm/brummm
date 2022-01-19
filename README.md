@@ -2,4 +2,4 @@
 
 Always looking to improve.
 
-Current working at Banco do Brasil.
+Currently working at Banco do Brasil.
